@@ -17,4 +17,4 @@ Sometimes it takes a while to show new OTP so just wait
 Enjoy!
 
 ### Note:
-This all things are only for educational purpose and if u get trapped ... so it ll be ur own responsibility 
+The content provided is for educational and informational purposes only and if u get trapped ... so it will be ur own responsibility. 
